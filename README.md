@@ -1,2 +1,2 @@
-# TorsdagsOpgaverUgeNr37
- uge nr 37
+Kristoffer Kreiner
+cph-kk466@cphbusiness.dk
